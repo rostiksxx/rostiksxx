@@ -1,16 +1,22 @@
-## Hi there 👋
+![IMG_6707](https://github.com/user-attachments/assets/9a18f065-72dd-4f7b-bf54-223fee650846)
 
-<!--
-**rostiksxx/rostiksxx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+---------
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+– Hi ! Call me Rostiksxx / Ростикс !
+
+– I'm always in offtab ahh . . that's why I prefer whispering to interact ! 
+
+---------
+
+c + h maybe . . 
+
+Any pronouns
+
+--------- 
+
+My best friends are Ceres213 n Mixwiio ! I love u )
+
+---------
+
+![IMG_6480](https://github.com/user-attachments/assets/e8251d55-2d12-4893-9f82-eebf2fba7327)
