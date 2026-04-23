@@ -7,15 +7,9 @@
 
 – I'm always in offtab ahh . . that's why I prefer whispering to interact ! 
 
----------
-
-c + h maybe . . 
-
-Any pronouns
-
 --------- 
 
-My best friends are Ceres213 n Mixwiio ! I love u )
+My best friends are Ceres213 n Mixwiio ! I love u |)
 
 ---------
 
