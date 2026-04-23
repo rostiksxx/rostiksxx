@@ -1,4 +1,4 @@
-![IMG_6707](https://github.com/user-attachments/assets/9a18f065-72dd-4f7b-bf54-223fee650846)
+<img width="1470" height="1000" alt="Image" src="https://github.com/user-attachments/assets/9a18f065-72dd-4f7b-bf54-223fee650846" />
 
 
 ---------
@@ -12,5 +12,3 @@
 My best friends are Ceres213 n Mixwiio ! I love u |)
 
 ---------
-
-![IMG_6480](https://github.com/user-attachments/assets/e8251d55-2d12-4893-9f82-eebf2fba7327)
